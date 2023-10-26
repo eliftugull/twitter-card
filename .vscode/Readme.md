@@ -1,3 +1,10 @@
+
+![twitter card-gif](https://github.com/eliftugull/twitter-card/assets/140808923/ce21a135-8d7b-424a-b7e6-006e6868e94d)
+
+
+
+
+
 #Yapılacaklar
 
 
